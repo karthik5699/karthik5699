@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I'm Katic. I'm building Stoick, a research tool designed to help investors make more informed decisions in the stock market. If you're interested in collaborating, feel free to reach out to me at karthiksingh5699@gmail.com
+I'm Katic. I'm building Stoick, a research tool designed to help investors make more informed decisions in the stock market. If you're interested in collaborating, feel free to reach out ✌🏻
